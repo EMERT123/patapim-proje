@@ -1,2 +1,2 @@
 # patapim-proje
-anan
+https://kurtulussavasimuzesi.tbmm.gov.tr/sanalziyaret
